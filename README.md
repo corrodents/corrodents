@@ -7,7 +7,7 @@
 ![f181b293](https://github.com/user-attachments/assets/0afbae21-31ca-4105-9c86-9553f82fb10e)  
 ![c0c04fe7](https://github.com/user-attachments/assets/34cb9cbf-0cac-486f-9faf-d99a49995cb4) *CREEPYPASTA/SLENDERVERSE/CALL OF DUTY/BANDOM ENJOYER!*  
 ![03eaf3a8](https://github.com/user-attachments/assets/d789b558-f173-4db5-b892-770440c01b15) *ARTIST/EDITOR OF SOME SORTS.*  
-![47e44551](https://github.com/user-attachments/assets/6f7ac452-6d4e-4ff8-b4e9-bf2699adbb27) *ART COMMS OPEN SOON. CHECK MY ART OUT ON TUMBLR/INSTA!*
+![47e44551](https://github.com/user-attachments/assets/6f7ac452-6d4e-4ff8-b4e9-bf2699adbb27) *ART COMMS ARE CURRENTLY OPEN:* https://corrodence.carrd.co
 ![f181b293](https://github.com/user-attachments/assets/fd1b76ec-49ef-4298-a131-5f065ffeda4f)  
 ![bcc92aea](https://github.com/user-attachments/assets/3f997b4f-5a89-40c7-a5da-ead3c53d3265)  
 ![f0adc02881b34aa8c47b110f0f1017b9](https://github.com/user-attachments/assets/7b45f5f8-47e2-4847-b71b-f54f572ba055)
