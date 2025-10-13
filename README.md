@@ -15,7 +15,7 @@ you don't worry now, worry now...
 
 ![49d4675c](https://github.com/user-attachments/assets/79bf9a86-f422-4778-bdce-62eb5682c928) `MENTALLY UNSTABLE, INTERACT WITH CAUTION. I BLOCK/IGNORE FREELY.`
 
-![49d4675c](https://github.com/user-attachments/assets/79bf9a86-f422-4778-bdce-62eb5682c928) `mulitfandom freak (bands/musicians, call of duty, metal gear solid, resident evil, silent hill, slenderverse, etc.)`
+![49d4675c](https://github.com/user-attachments/assets/79bf9a86-f422-4778-bdce-62eb5682c928) `multifandom freak (bands/musicians, call of duty, metal gear solid, resident evil, silent hill, slenderverse, etc.)`
 
 ![49d4675c](https://github.com/user-attachments/assets/79bf9a86-f422-4778-bdce-62eb5682c928) `if you see me in ponytown, hello! i'm usually offtab/afk/chilling with friends. don't copy my skins, you're cool if u get inspired by them! ^_^)`
 
