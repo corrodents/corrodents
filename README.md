@@ -11,7 +11,7 @@ you don't worry now, worry now...
   
 ![heartbeat2](https://github.com/user-attachments/assets/ca291eac-3f25-4930-848f-f76c5beb8cf5)
 
-![49d4675c](https://github.com/user-attachments/assets/79bf9a86-f422-4778-bdce-62eb5682c928) `bell/eden/biohazard | it/they | 18`
+![49d4675c](https://github.com/user-attachments/assets/79bf9a86-f422-4778-bdce-62eb5682c928) `bell/eden/biohazard | it/they | 19`
 
 ![49d4675c](https://github.com/user-attachments/assets/79bf9a86-f422-4778-bdce-62eb5682c928) `MENTALLY UNSTABLE, INTERACT WITH CAUTION. I BLOCK/IGNORE FREELY.`
 
