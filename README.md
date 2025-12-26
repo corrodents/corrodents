@@ -2,7 +2,7 @@
 
 <img width="760" height="389" alt="New Project 1  71573E4" src="https://github.com/user-attachments/assets/d243d9a5-8f76-435f-b433-a173d29e3243" />
   
-[art comms](https://corrodence.carrd.co/#) ![32e9614e](https://github.com/user-attachments/assets/30474433-b7d8-454f-bd57-c99d65d859d0) [strawpage](https://corrodents.straw.page/) ![32e9614e](https://github.com/user-attachments/assets/30474433-b7d8-454f-bd57-c99d65d859d0) [prns page](https://en.pronouns.page/@corrodence)
+[(closed) art comms](https://corrodence.carrd.co/#) ![32e9614e](https://github.com/user-attachments/assets/30474433-b7d8-454f-bd57-c99d65d859d0) [strawpage](https://corrodents.straw.page/) ![32e9614e](https://github.com/user-attachments/assets/30474433-b7d8-454f-bd57-c99d65d859d0) [prns page](https://en.pronouns.page/@corrodence)
 
 
 `
