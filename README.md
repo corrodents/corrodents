@@ -12,8 +12,10 @@ if you're coming from ponytown, inspo from my ponies are okay. i'm usually hangi
 
 [tumblr](https://www.tumblr.com/blog/hatefulofallelse) ⊹ [strawpage](https://corrodents.straw.page) ⊹ [atabook](https://corrodents.atabook.org)
 
-<sup> *it's a parasite eve.* </sup> <sup> *got a feeling in your stomach cause you know that it's coming for ya..* </sup>
+<sup> *it's a parasite eve.* </sup> <sup> *got a feeling in your stomach, 'cause you know that it's coming for ya..* </sup>
 
-<img align="center" img width="511" height="112" alt="chain" src="https://github.com/user-attachments/assets/96c67a10-1139-4590-9e34-aaf0a2bfc162" />
+<img align="center" img width="511" height="112" alt="chain" src="https://github.com/user-attachments/assets/96c67a10-1139-4590-9e34-aaf0a2bfc162" /> ![b60d81e6](https://github.com/user-attachments/assets/a68bb0a8-9c72-4c54-9304-bbbe375adb86)
+
+
 
 
