@@ -10,6 +10,8 @@ eden *or* eve  ── .✦ 9teen ✦ ***-15 DO NOT INTERACT***
 
 [tumblr](https://www.tumblr.com/blog/hatefulofallelse) ⊹ [strawpage](https://corrodents.straw.page) ⊹ [atabook](https://corrodents.atabook.org)
 
+<sup> *it's a parasite eve.* </sup> <sup> *got a feeling in your stomach cause you know that it's coming for ya..* </sup>
+
 <img align="center" img width="511" height="112" alt="chain" src="https://github.com/user-attachments/assets/96c67a10-1139-4590-9e34-aaf0a2bfc162" />
 
-<sup> *it's a parasite eve.* </sup>
+
