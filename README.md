@@ -14,4 +14,4 @@ if you're coming from ponytown, inspo from my ponies are okay. i'm usually hangi
 
 <sup> *it's a parasite eve.* </sup> <sup> *got a feeling in your stomach, 'cause you know that it's coming for ya..* </sup>
 
-<img align="center" img width="511" height="112" alt="chain" src="https://github.com/user-attachments/assets/96c67a10-1139-4590-9e34-aaf0a2bfc162" />  ![giphy-ezgif com-resize](https://github.com/user-attachments/assets/f310141d-f503-4887-82a1-f509dd9e148c)
+<img align="center" img width="511" height="112" alt="chain" src="https://github.com/user-attachments/assets/96c67a10-1139-4590-9e34-aaf0a2bfc162" />
