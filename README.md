@@ -8,6 +8,8 @@ eden *or* eve  ── .✦ 9teen ✦ ***-15 DO NOT INTERACT***
 
 <ins> mentally unstable, *please interact with caution.* </ins>
 
+if you're coming from ponytown, inspo from my ponies are okay. i'm usually hanging with friends or around the music/valve area on safe server.
+
 [tumblr](https://www.tumblr.com/blog/hatefulofallelse) ⊹ [strawpage](https://corrodents.straw.page) ⊹ [atabook](https://corrodents.atabook.org)
 
 <sup> *it's a parasite eve.* </sup> <sup> *got a feeling in your stomach cause you know that it's coming for ya..* </sup>
