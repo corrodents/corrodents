@@ -10,7 +10,7 @@ eden *or* eve  ── .✦ 9teen ✦ ***-15 DO NOT INTERACT***
 
 if you're coming from ponytown, inspo from my ponies are okay. usually hanging with friends/music/valve area on safe server. i get nervous w interactions!
 
-[tumblr](https://www.tumblr.com/hatefulofallelse) ⊹ [strawpage](https://childrenofthedevolution.straw.page) ⊹ [atabook](https://childrenofthedevolution.atabook.org)
+[tumblr](https://www.tumblr.com/childrenofthedevolution) ⊹ [strawpage](https://childrenofthedevolution.straw.page) ⊹ [atabook](https://childrenofthedevolution.atabook.org)
 
 <sup> *it's a parasite eve.* </sup> <sup> *got a feeling in your stomach, 'cause you know that it's coming for ya..* </sup>
 
