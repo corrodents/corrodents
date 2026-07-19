@@ -9,7 +9,7 @@
   
 `eden or doe :: 19 :: minors -15 DO NOT INTERACT.`
 
-`i am usually awkward and do not know how to talk with people. don't be shy to say hello though, i do not bite unless you're being mean. i have memory issues and am mentally unstable/paranoid, please be patient and interact with caution.`
+`i am socially awkward and do not know how to talk to people. don't be shy to say hello though, i do not bite unless you're being mean. i have memory issues and am mentally unstable/paranoid, please be patient and interact with caution.`
 
 </div>
 
